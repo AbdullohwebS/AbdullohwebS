@@ -1,5 +1,4 @@
 # 💫 About Me:
-hey I'm < Abdulloh Nurmukhammedov developer /> 
 
 
 ## 🌐 Socials:
